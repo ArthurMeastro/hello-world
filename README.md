@@ -1,2 +1,3 @@
 # hello-world
-just another repository
+Hi humans
+This is musaasizi joel arthur and i need your brains soooonnn
